@@ -1,5 +1,5 @@
 <p align="center">
-  <i>❝They call it center mass, that part they aim for.❞</i>
+  <i><b>❝They call it center mass, that part they aim for. Shrink it down to nothing and forgetting what the pain's for.❞</b></i>
 </p>
 
 <br>
