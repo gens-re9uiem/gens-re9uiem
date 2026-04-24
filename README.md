@@ -21,7 +21,7 @@
 ── ✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧ ──
 </p>
 
-<br>
+<br><br>
 
 <p align="center">
 <b>´´ ✦ Before You Interact ✦ ´´</b> 
@@ -47,7 +47,7 @@
 <p align="center"><sub>Usually I do not mind it when a fandom of any kind interacts with me but just beware that I have little tolerance towards these respective ones: Hazbin Hotel / Helluva Boss, Harry Potter, Twenty One Pilots, My Chemical Romance, Stranger Things, Danganronpa, My Little Pony (more specifically the part of the fandom that constantly fights over ships ; I am a multishipper in the fandom and therefore I find this ridiculous), among other ones that I cannot remember as I'm writing this lol.</sub>
 </p>
 
-<br>
+<br><br>
 
 <p align="center">
 ── ✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧ ──
