@@ -15,7 +15,7 @@
 <p align="center"><sub>I'm really shy at first and don't really talk to anybody unless I'm spoken to, but I do enjoy making new friends from shared fandoms. I also don't mind C+H, so feel free to sit next to me if you want! I'm usually on my own anyway. ^^"</sub>
 </p>
 
-<br>
+<br><br>
 
 <p align="center">
 ── ✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧ ──
@@ -53,7 +53,7 @@
 ── ✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧ ──
 </p>
 
-<br>
+<br><br>
 
 <p align="center">
   <b>✦ Thank you for reading! Have a great day! ✦</b><br>
