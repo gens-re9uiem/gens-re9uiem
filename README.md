@@ -40,7 +40,7 @@
 </p>
 
 <p align="center">
-<sub>DO NOT INTERACT if you label yourself a proshipper / zoophile, if you're against the LGBTQ+ community (I myself am an openly bisexual woman), if you're straight up racist and a bigot. If you fake any sort of disorders you can also see yourself out, I do not want to talk to people who think having mental ilnesses of any kind is quirky and fun.</sub></p>
+<sub>DO NOT INTERACT if you label yourself a proshipper / zoophile, if you're against the LGBTQ+ community (I myself am an openly bisexual woman), if you're straight up racist and a bigot. If you fake any sort of disorders you can also see yourself out, I do not want to talk to people who think having mental illnesses of any kind is quirky and fun.</sub></p>
 
 <p>Also, I must add that I am lowkey a Leon S. Kennedy yumeshipper / self-shipper, however I am not a non-sharing. If you happen to be a non-sharing yume feel free to hide me, I won't take it personally!</p>
 
