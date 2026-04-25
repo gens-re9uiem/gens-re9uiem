@@ -1,4 +1,10 @@
 <p align="center">
+<sub>This page is a bit unfinished cause I haven't coded html in a while. I'll be adding some more things with time, though! For now, just read everything below please.</sub>
+</p>
+
+<br>
+
+<p align="center">
   <i><b>❝They call it center mass, that part they aim for. Shrink it down to nothing and forgetting what the pain's for.❞</b></i>
 </p>
 
