@@ -42,7 +42,7 @@
 <p align="center"><sub>I am rarely ever in the mood for serious roleplay due to constantly being pushed to continue roleplays by various different people in the past. So usually, I'm not up for it, but you're free to ask me if I'd like to engage in a roleplay anyway! Who knows. I might be up for it at some point lol.</sub>
 </p>
 
-<p align="center"><sub>Also, I must add that I am lowkey a Leon S. Kennedy yumeshipper / self-shipper, however I am not a non-sharing. If you happen to be a non-sharing yume feel free to hide me, I won't take it personally! Although I get a little giddy when Leon skin sits next to my RE sona, I personally will not sit next to one myself so as to not make anyone uncomfortable.</sub></p>
+<p align="center"><sub>Also, I must add that I am lowkey a Leon S. Kennedy yumeshipper / self-shipper, however I am not a non-sharing. If you happen to be a non-sharing yume feel free to hide me, I won't take it personally! Although I get a little giddy when Leon skins sit next to my RE sona, I personally will not sit next to one myself so as to not make anyone uncomfortable by accident.</sub></p>
 
 <br>
 
